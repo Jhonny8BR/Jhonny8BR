@@ -8,7 +8,7 @@
   - ✅Printer 3D
   - ✅English
 
-- 📫 How to reach me:  <tr>[Instagram](https://www.instagram.com/jonathantribess/);</tr> <tr>[LinkedIn](https://www.linkedin.com/in/jonathantribess/);</tr> <tr>[Email](tribess.jonathan@gmail.com);</tr>
+- 📫 How to reach me: Email - tribess.jonathan@gmail.com
 - ⚡ Fun fact: ... 
 
 -  I 🖤 Cat - Shuri 🐈‍⬛
